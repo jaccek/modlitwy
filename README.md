@@ -23,3 +23,5 @@ Ucz nas tak postępować, aby w naszym życiu najważniejsza była miłość.
 Maryjo, Matko nasza, prowadź nas drogami wiary do samego źródła miłości – do  Jezusa.
 Za Świętym Janem Pawłem II pragniemy całkowicie zawierzyć się Tobie: „Totus Tuus, Maryjo”!
 W Twoim Niepokalanym Sercu składamy całych siebie, wszystko, czym jesteśmy, każdy nasz krok, każdą chwilę naszego życia.
+
+Amen.
